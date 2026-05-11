@@ -1,0 +1,1 @@
+# gpeto-assets
